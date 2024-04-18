@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Kaila (Kay-luh)
-- 👀 I like watching plants grow
+- 👀 I like to watch plants grow
 - 🌱 Nature is my muse
 - 💞️ I love art and music
 - 📫 I'm easy to talk to
